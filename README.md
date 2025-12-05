@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Games devlop other
 - 📫 How to reach me: ...
 - 😄 Pronouns: toci or juan
-- ⚡ Fun fact: i m funny
+- ⚡ Fun fact: i m funny, and good person
 -->
